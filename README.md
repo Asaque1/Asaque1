@@ -1,5 +1,5 @@
 - 👋 Hello, I’m @Asaque1.
-- 👀 I’m interested in making game.
+- 👀 I’m novelist and game maker.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 if you wanna talk to me, send to asaque070@gmail.com
